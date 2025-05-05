@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects involving dev and hardware development.
 
-📫 How to reach me: DM me here or via email (if shared).
+📫 How to reach me: DM me here or via email (zizoubouali92@gmail.com).
 
 😄 Pronouns: He/Him
 
